@@ -1,0 +1,4 @@
+---
+slug: generous
+name: generous
+---
