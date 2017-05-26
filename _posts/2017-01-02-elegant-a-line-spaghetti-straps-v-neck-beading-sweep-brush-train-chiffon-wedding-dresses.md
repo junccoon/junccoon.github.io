@@ -3,7 +3,7 @@ layout: post
 date: '2017-01-02'
 title: "Elegant A-line Spaghetti Straps V-neck Beading Sweep/Brush Train Chiffon Wedding Dresses"
 category: Wedding Dresses
-tags: ["brush","line","chiffon","sweep","spaghetti"]
+tags: ["train","beading","chiffon","spaghetti","wedding"]
 image: http://www.dressesular.com/987-thickbox_default/elegant-a-line-spaghetti-straps-v-neck-beading-sweep-brush-train-chiffon-wedding-dresses.jpg
 ---
 Elegant A-line Spaghetti Straps V-neck Beading Sweep/Brush Train Chiffon Wedding Dresses
